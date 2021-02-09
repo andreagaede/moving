@@ -6,7 +6,7 @@ We are moving overseas and have furniture and other things to sell by Saturday, 
 
 
 ## Kitchen stuff
-Nespresso 'Essenza Mini'
+Nespresso 'Essenza Mini': $40
 <br>
 <img src="IMG_7886.JPG" alt="nespresso" width="300">
 <img src="IMG_7884.JPG" alt="nespresso" width="300">
@@ -14,7 +14,7 @@ Nespresso 'Essenza Mini'
 <img src="IMG_7883.JPG" alt="nespresso" width="300">
 <br>
 <br>
-Gooseneck kettle
+Gooseneck kettle: $15
 <br>
 <img src="IMG_7880.JPG" alt="kettle" width="300">
 

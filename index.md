@@ -11,7 +11,7 @@ Prices are negotiable, but you'll have to arrange pickup.
 
 
 ## Kitchen stuff
-Nespresso 'Essenza Mini': $40
+### Nespresso 'Essenza Mini': $40
 <br>
 <img src="IMG_7886.JPG" alt="nespresso" width="300">
 <img src="IMG_7884.JPG" alt="nespresso" width="300">
@@ -19,21 +19,28 @@ Nespresso 'Essenza Mini': $40
 <img src="IMG_7883.JPG" alt="nespresso" width="300">
 <br>
 <br>
-Gooseneck kettle: $15
+### Gooseneck kettle: $15
 <br>
 <img src="IMG_7880.JPG" alt="kettle" width="300">
-
+<br>
+<br>
 
 
 ## Smaller things
 
-Ikea desk lamp: $2
-<br>
+### Ikea desk lamp: $2
 <img src="IMG_7862.JPG" alt="lamp" width="300">
-
+<br>
+<br>
+### Office cabinet/bedside table
+<img src="IMG_7861.JPG" alt="cabinet" width="300>
+<br>
+<br>                                             
 
 
 
 ## Things I haven't photographed yet
 - Queen size air mattress: $15
+- Microwave: $20
+
 

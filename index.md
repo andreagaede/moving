@@ -32,18 +32,36 @@ Prices are negotiable, but you'll have to arrange pickup.
 <img src="IMG_7862.JPG" alt="lamp" width="300">
 <br>
 <br>
+
 ### Office cabinet/bedside table: $20
 <img src="IMG_7861.JPG" alt="cab" width="300">
 <br>
 <br>
-### laptop side table: $8
+
+### Laptop side table: $8
 <img src="IMG_7867.JPG" alt="table" width="300">
 <br>
 <br>
 
+### Vacuum cleaner: $35
+<img src="IMG_7877.JPG" alt="vacuum" width="300">
+<br>
+<br>
+
+### [Breville Hemisphere Control Blender: $40](https://www.canadiantire.ca/en/pdp/breville-hemisphere-control-blender-0432645p.htm)
+<img src="IMG_7878.JPG" alt="table" width="300">
+<br>
+<br>
+
+### Shark iron and ironing board: $20
+<img src="IMG_7881.JPG" alt="iron" width="300">
+<br>
+<br>
+
+
 
 ## Things I haven't photographed yet
-- Queen size air mattress: $15
+- Queen sized air mattress: $15
 - Microwave: $20
 
 

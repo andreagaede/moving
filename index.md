@@ -6,7 +6,14 @@ Prices are negotiable, but you'll have to arrange pickup at UBC.
 <br>
 
 ## Large furniture
-### Mattress and frame: $100
+
+### Billy Bookcases
+<br>
+<img src="IMG_7901.JPG" alt="bookcase" width="300">
+<br>
+<br>
+
+### Mattress and frame: $100 (SOLD)
 [IKEA Nordli King size platform bed frame.](https://www.ikea.com/ca/en/p/nordli-bed-frame-with-storage-white-30349857/) Purchased new in 2018.
 
 [King size 'Original' mattress from Tuft & Needle.](https://tuftandneedle.ca/products/t-n-original-mattress?variant=31343960752265) Purchased new in 2018. Has always lived inside a zippered mattress bag and waterproof mattress pad.
@@ -39,7 +46,12 @@ Prices are negotiable, but you'll have to arrange pickup at UBC.
 
 ## Smaller things
 
-### Office cabinet/bedside table: $20
+### West Elm table lamps (there are two of them): $30 each
+<img src="IMG_7900.JPG" alt="lamps" width="300">
+<br>
+<br>
+
+### Office cabinet/bedside table: $20 (SOLD)
 <img src="IMG_7861.JPG" alt="cab" width="300">
 <br>
 <br>
@@ -69,7 +81,7 @@ Prices are negotiable, but you'll have to arrange pickup at UBC.
 <br>
 <br>
 
-### Ikea desk lamp: $2
+### Ikea desk lamp: $2 (SOLD)
 <img src="IMG_7862.JPG" alt="lamp" width="300">
 <br>
 <br>
@@ -79,7 +91,6 @@ Prices are negotiable, but you'll have to arrange pickup at UBC.
 - Queen sized air mattress: $15
 - Microwave: $20
 - Ikea outdoor couch/2 chairs -- two corner pieces with cushions: $75
-- Plants
 - Other lamps
 - White Billy bookcases
 - IKEA shelving units

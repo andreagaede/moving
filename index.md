@@ -1,8 +1,13 @@
 # Buy our Vancouver life!
-We are moving overseas and have furniture and other things to sell by Saturday, Feb 13. Prices are negotiable, but you'll have to arrange pickup.
+We are moving overseas and have furniture and other things to sell by Saturday, Feb 13. 
+
+Prices are negotiable, but you'll have to arrange pickup.
 
 ## Large furniture
+### Mattress and frame: $100
+[IKEA Nordli King size platform bed frame.](https://www.ikea.com/ca/en/p/nordli-bed-frame-with-storage-white-30349857/) Purchased new in 2018.
 
+[King size 'Original' mattress from Tuft & Needle.](https://tuftandneedle.ca/products/t-n-original-mattress?variant=31343960752265) Purchased new in 2018. Has always lived inside a zippered mattress bag and waterproof mattress pad.
 
 
 ## Kitchen stuff

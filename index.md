@@ -12,16 +12,18 @@ Nespresso 'Essenza Mini'
 <img src="IMG_7884.JPG" alt="nespresso" width="300">
 <img src="IMG_7885.JPG" alt="nespresso" width="300">
 <img src="IMG_7883.JPG" alt="nespresso" width="300">
-
-
-
+<br>
+<br>
+Gooseneck kettle
+<br>
+<img src="IMG_7880.JPG" alt="kettle" width="300">
 
 
 
 ## Smaller things
 
 Ikea desk lamp: $2
-
+<br>
 <img src="IMG_7862.JPG" alt="lamp" width="300">
 
 

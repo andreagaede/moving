@@ -33,8 +33,13 @@ Prices are negotiable, but you'll have to arrange pickup.
 <br>
 <br>
 ### Office cabinet/bedside table: $20
-<img src="IMG_7861.JPG" alt="cabinet" width="300">
-
+<img src="IMG_7861.JPG" alt="cab" width="300">
+<br>
+<br>
+### laptop side table: $8
+<img src="IMG_7867.JPG" alt="table" width="300">
+<br>
+<br>
 
 
 ## Things I haven't photographed yet

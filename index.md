@@ -9,13 +9,15 @@ Prices are negotiable, but you'll have to arrange pickup at UBC.
 
 ## Large furniture
 
-### Billy Bookcases
+### Billy Bookcases: $50 each
 <br>
 <img src="IMG_7901.JPG" alt="bookcase" width="300">
 <br>
 <br>
 
-[IKEA FJÄLKINGE white shelving unit with two drawers](https://www.ikea.com/ca/en/p/fjaelkinge-shelf-unit-with-drawers-white-s19931865/)
+### [IKEA FJÄLKINGE white shelving unit with two drawers](https://www.ikea.com/ca/en/p/fjaelkinge-shelf-unit-with-drawers-white-s19931865/)
+<br>
+<br>
 
 ## Kitchen stuff
 

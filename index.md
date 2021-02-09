@@ -7,7 +7,7 @@ We are moving overseas and have furniture and other things to sell by Saturday, 
 
 ## Kitchen stuff
 Nespresso 'Essenza Mini'
-
+<br>
 <img src="IMG_7886.JPG" alt="nespresso" width="300">
 <img src="IMG_7884.JPG" alt="nespresso" width="300">
 <img src="IMG_7885.JPG" alt="nespresso" width="300">

@@ -15,7 +15,7 @@ Prices are negotiable, but you'll have to arrange pickup at UBC.
 <br>
 <br>
 
-### [IKEA FJÄLKINGE white shelving unit with two drawers](https://www.ikea.com/ca/en/p/fjaelkinge-shelf-unit-with-drawers-white-s19931865/)
+### [IKEA FJÄLKINGE white shelving unit with two drawers: $75](https://www.ikea.com/ca/en/p/fjaelkinge-shelf-unit-with-drawers-white-s19931865/)
 <br>
 <br>
 

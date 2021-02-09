@@ -28,7 +28,7 @@ Prices are negotiable, but you'll have to arrange pickup at UBC.
 
 ## Kitchen stuff
 
-### Nespresso 'Essenza Mini': $40
+### Nespresso 'Essenza Mini': $40 (SOLD)
 <br>
 <img src="IMG_7886.JPG" alt="nespresso" width="300">
 <img src="IMG_7884.JPG" alt="nespresso" width="300">
@@ -37,7 +37,7 @@ Prices are negotiable, but you'll have to arrange pickup at UBC.
 <br>
 <br>
 
-### Gooseneck kettle: $15
+### Gooseneck kettle: $15 (SOLD)
 <br>
 <img src="IMG_7880.JPG" alt="kettle" width="300">
 <br>
@@ -76,7 +76,7 @@ Prices are negotiable, but you'll have to arrange pickup at UBC.
 <br>
 <br>
 
-### Shark iron and ironing board: $20
+### Shark iron and ironing board: $20 (SOLD)
 <img src="IMG_7881.JPG" alt="iron" width="300">
 <br>
 <br>

@@ -3,16 +3,28 @@ We are moving overseas and have furniture and other things to sell by Saturday, 
 
 ## Large furniture
 
-[Link](url) and ![Image](src)
 
 
 ## Kitchen stuff
+Nespresso 'Essenza Mini'
+<img src="IMG_7886.JPG" alt="nespresso" width="300">
+<img src="IMG_7884.JPG" alt="nespresso" width="300">
+<img src="IMG_7885.JPG" alt="nespresso" width="300">
+<img src="IMG_7883.JPG" alt="nespresso" width="300">
+
+
+
+
 
 
 ## Smaller things
+
 Ikea desk lamp: $2
 
 <img src="IMG_7862.JPG" alt="lamp" width="300">
+
+
+
 
 ## Things I haven't photographed yet
 - Queen size air mattress: $15

@@ -54,7 +54,7 @@ Prices are negotiable, but you'll have to arrange pickup at UBC.
 <br>
 <br>
 
-### [Breville Hemisphere Control Blender: $40](https://www.canadiantire.ca/en/pdp/breville-hemisphere-control-blender-0432645p.htm)
+### [Breville Hemisphere Control Blender: $45](https://www.canadiantire.ca/en/pdp/breville-hemisphere-control-blender-0432645p.htm)
 <img src="IMG_7878.JPG" alt="table" width="300">
 <br>
 <br>
@@ -79,5 +79,7 @@ Prices are negotiable, but you'll have to arrange pickup at UBC.
 - Queen sized air mattress: $15
 - Microwave: $20
 - Ikea outdoor couch/2 chairs -- two corner pieces with cushions: $75
+- plants
+
 
 

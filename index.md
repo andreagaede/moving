@@ -46,12 +46,12 @@ Prices are negotiable, but you'll have to arrange pickup at UBC.
 
 ## Smaller things
 
-### IKEA floor lamp: $40
+### IKEA floor lamp: $40 (SOLD)
 <img src="IMG_7903.JPG" alt="lamp" width="300">
 <br>
 <br>
 
-### West Elm table lamps (there are two of them): $30 each
+### West Elm table lamps (there are two of them): $30 each (SOLD)
 <img src="IMG_7900.JPG" alt="lamps" width="300">
 <br>
 <br>

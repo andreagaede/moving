@@ -26,12 +26,13 @@ Prices are negotiable, but you'll have to arrange pickup at UBC.
 <br>
 <br>
 
+### Microwave (12”h X 13.5”d X 20”w): $20
+<img src="IMG_7899.JPG" alt="microwave" width="300">
+<br>
+<br>
 
 ## Things I haven't photographed yet
 - Queen sized air mattress: $15
-- Microwave: $20
-- Ikea outdoor couch/2 chairs -- two corner pieces with cushions: $75
-- IKEA shelving units
 
 
 # SOLD

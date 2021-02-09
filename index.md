@@ -5,6 +5,8 @@ Prices are negotiable, but you'll have to arrange pickup at UBC.
 <br>
 <br>
 
+# Still Available:
+
 ## Large furniture
 
 ### Billy Bookcases
@@ -13,6 +15,24 @@ Prices are negotiable, but you'll have to arrange pickup at UBC.
 <br>
 <br>
 
+[IKEA FJÄLKINGE white shelving unit with two drawers](https://www.ikea.com/ca/en/p/fjaelkinge-shelf-unit-with-drawers-white-s19931865/)
+
+## Kitchen stuff
+
+### [Breville Hemisphere Control Blender: $45](https://www.canadiantire.ca/en/pdp/breville-hemisphere-control-blender-0432645p.htm)
+<img src="IMG_7878.JPG" alt="table" width="300">
+<br>
+<br>
+
+
+## Things I haven't photographed yet
+- Queen sized air mattress: $15
+- Microwave: $20
+- Ikea outdoor couch/2 chairs -- two corner pieces with cushions: $75
+- IKEA shelving units
+
+
+# SOLD
 ### Mattress and frame: $100 (SOLD)
 [IKEA Nordli King size platform bed frame.](https://www.ikea.com/ca/en/p/nordli-bed-frame-with-storage-white-30349857/) Purchased new in 2018.
 
@@ -71,10 +91,6 @@ Prices are negotiable, but you'll have to arrange pickup at UBC.
 <br>
 <br>
 
-### [Breville Hemisphere Control Blender: $45](https://www.canadiantire.ca/en/pdp/breville-hemisphere-control-blender-0432645p.htm)
-<img src="IMG_7878.JPG" alt="table" width="300">
-<br>
-<br>
 
 ### Shark iron and ironing board: $20 (SOLD)
 <img src="IMG_7881.JPG" alt="iron" width="300">
@@ -92,11 +108,7 @@ Prices are negotiable, but you'll have to arrange pickup at UBC.
 <br>
 
 
-## Things I haven't photographed yet
-- Queen sized air mattress: $15
-- Microwave: $20
-- Ikea outdoor couch/2 chairs -- two corner pieces with cushions: $75
-- IKEA shelving units
+
 
 
 

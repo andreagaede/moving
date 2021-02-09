@@ -45,7 +45,7 @@ Prices are negotiable, but you'll have to arrange pickup.
 <br>
 <br>
 
-### Vacuum cleaner: $35
+### Soniclean Vacuum cleaner: $35
 <img src="IMG_7877.JPG" alt="vacuum" width="300">
 <br>
 <br>
@@ -60,6 +60,10 @@ Prices are negotiable, but you'll have to arrange pickup.
 <br>
 <br>
 
+### Shark steam mop and extra pads: $30
+<img src="IMG_7882.JPG" alt="iron" width="300">
+<br>
+<br>
 
 
 ## Things I haven't photographed yet

@@ -1,7 +1,9 @@
 # Buy our Vancouver life!
 We are moving overseas and have furniture and other things to sell by Saturday, Feb 13. 
 
-Prices are negotiable, but you'll have to arrange pickup.
+Prices are negotiable, but you'll have to arrange pickup at UBC.
+<br>
+<br>
 
 ## Large furniture
 ### Mattress and frame: $100
@@ -9,6 +11,13 @@ Prices are negotiable, but you'll have to arrange pickup.
 
 [King size 'Original' mattress from Tuft & Needle.](https://tuftandneedle.ca/products/t-n-original-mattress?variant=31343960752265) Purchased new in 2018. Has always lived inside a zippered mattress bag and waterproof mattress pad.
 
+### Dresser from Wayfair -- has dodgy leg, but has functioned fine: free
+<img src="IMG_7894.JPG" alt="dresser" width="300">
+<br>
+<br>
+
+<br>
+<br>
 
 ## Kitchen stuff
 
@@ -29,11 +38,6 @@ Prices are negotiable, but you'll have to arrange pickup.
 
 
 ## Smaller things
-
-### Ikea desk lamp: $2
-<img src="IMG_7862.JPG" alt="lamp" width="300">
-<br>
-<br>
 
 ### Office cabinet/bedside table: $20
 <img src="IMG_7861.JPG" alt="cab" width="300">
@@ -62,6 +66,11 @@ Prices are negotiable, but you'll have to arrange pickup.
 
 ### Shark steam mop and extra pads: $30
 <img src="IMG_7882.JPG" alt="iron" width="300">
+<br>
+<br>
+
+### Ikea desk lamp: $2
+<img src="IMG_7862.JPG" alt="lamp" width="300">
 <br>
 <br>
 

@@ -78,5 +78,6 @@ Prices are negotiable, but you'll have to arrange pickup at UBC.
 ## Things I haven't photographed yet
 - Queen sized air mattress: $15
 - Microwave: $20
+- Ikea outdoor couch/2 chairs -- two corner pieces with cushions: $75
 
 

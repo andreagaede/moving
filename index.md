@@ -11,6 +11,7 @@ Prices are negotiable, but you'll have to arrange pickup.
 
 
 ## Kitchen stuff
+
 ### Nespresso 'Essenza Mini': $40
 <br>
 <img src="IMG_7886.JPG" alt="nespresso" width="300">
@@ -19,6 +20,7 @@ Prices are negotiable, but you'll have to arrange pickup.
 <img src="IMG_7883.JPG" alt="nespresso" width="300">
 <br>
 <br>
+
 ### Gooseneck kettle: $15
 <br>
 <img src="IMG_7880.JPG" alt="kettle" width="300">

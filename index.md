@@ -81,7 +81,7 @@ Prices are negotiable, but you'll have to arrange pickup at UBC.
 <br>
 <br>
 
-### Shark steam mop and extra pads: $30
+### Shark steam mop and extra pads: $30 (SOLD)
 <img src="IMG_7882.jpg" alt="mop" width="300">
 <br>
 <br>

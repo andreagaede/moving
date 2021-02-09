@@ -11,7 +11,8 @@ We are moving overseas and have furniture and other things to sell by Saturday, 
 
 ## Smaller things
 Ikea desk lamp: $2
-![desk lamp] (IMG_7862.JPG)
+
+<img src="IMG_7862.JPG" alt="lamp" width="300">
 
 ## Things I haven't photographed yet
 - Queen size air mattress: $15
